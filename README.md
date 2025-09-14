@@ -41,5 +41,5 @@ Intelligence, armed with intuition, ceases to be a tool and becomes a **force of
 ---
 
 ## Authorship
-Created and released by **[AAGG/ Handle]**  
+Created and released by **[AAGG]**  
 Manifesto published first here as proof of authorship.
